@@ -1,4 +1,5 @@
-![image](https://github.com/nvzvetrin/readme/assets/120307202/ea193e1a-c99f-445a-a656-9afa9427ba93)
+![image](https://github.com/user-attachments/assets/a4c9e754-9072-4cca-b3da-635aac305a46)
+
 
 ### Hi there <img alt="wave" src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">
 
